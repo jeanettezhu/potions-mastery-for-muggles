@@ -19,7 +19,7 @@ Never received that coveted invitation letter to Hogwarts? Don’t worry, muggle
 
 →  AUDIO  
 * "Hedwig's Theme" (Music Box Version)  ©  John Williams
-* "Potions Lesson in the Dungeon"  ©  [Katsumi](http://harry-potter-sounds.ambient-mixer.com/potions-lesson-in-the-dungeon" target="_blank" style="color: #94b333)
+* "Potions Lesson in the Dungeon"  ©  [Katsumi](http://harry-potter-sounds.ambient-mixer.com/potions-lesson-in-the-dungeon)
 * All other audio  ©  [Sound Jay](http://www.soundjay.com/) and [SoundBible](http://soundbible.com)
 
 →  WRITING  
